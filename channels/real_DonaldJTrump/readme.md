@@ -1,29 +1,5 @@
 # Channel real_DonaldJTrump
 
-## Message 19191
-
-**Date:** 2026-04-19T19:26:18+00:00
-
-Today, an Iranian-flagged cargo ship named TOUSKA, nearly 900 feet long and weighing almost as much as an aircraft carrier, tried to get past our Naval Blockade, and it did not go well for them. The U.S. Navy Guided Missile Destroyer USS SPRUANCE intercepted the TOUSKA in the Gulf of Oman, and gave them fair warning to stop. The Iranian crew refused to listen, so our Navy ship stopped them right in their tracks by blowing a hole in the engineroom. Right now, U.S. Marines have custody of the vessel. The TOUSKA is under U.S. Treasury Sanctions because of their prior history of illegal activity. We have full custody of the ship, and are seeing what’s on board! President DONALD J. TRUMP
-
----
-
-## Message 19192
-
-**Date:** 2026-04-19T23:32:44+00:00
-
-Trump, Iran and the Bottom Line for American Interests
-
----
-
-## Message 19193
-
-**Date:** 2026-04-20T14:47:25+00:00
-
-Israel never talked me into the war with Iran, the results of Oct. 7th, added to my lifelong opinion that IRAN CAN NEVER HAVE A NUCLEAR WEAPON, did. I watch and read the FAKE NEWS Pundits and Polls in total disbelief. 90% of what they say are lies and made up stories, and the polls are rigged, much as the 2020 Presidential Election was rigged. Just like the results in Venezuela, which the media doesn’t like talking about, the results in Iran will be amazing - And if Iran’s new leaders (Regime Change!) are smart, Iran can have a great and prosperous future! President DJT
-
----
-
 ## Message 19194
 
 **Date:** 2026-04-20T17:37:14+00:00
@@ -145,5 +121,29 @@ Iran is collapsing financially! They want the Strait of Hormuz opened immediatel
 **Date:** 2026-04-22T14:30:30+00:00
 
 How can the Democrats not like how the U.S. Supreme Court votes. The Democrat Justices stick together like glue, NEVER failing to wander from the warped and perverse policies, ideas, and cases put before them. They ALWAYS vote as a group, or BLOCK, even that new, Low IQ person, that somehow found her way to the bench (Sleepy Joe!). The Republican Justices don’t stick together, they give the Democrats win after win, like a 159 Billion Dollar pile of cash on a completely ridiculous Tariff decision, and nasty, one sided questions on the country destroying subject of Birthright Citizenship, something which virtually NO OTHER COUNTRY IN THE WORLD IS STUPID ENOUGH TO ALLOW. It was meant for the babies of slaves, not for the babies of Chinese Billionaires. No, certain “Republican” Justices have just gone weak, stupid, and bad, completely violating what they “supposedly” stood for. Handing over 159 Billion Dollars in Tariff refunds to people who have been Ripping Off our Country for years, is unexplainable. One little sentence would have stoped this record setting payment from having to be made. It is a travesty! Their Tariff decision was an unnecessary and expensive slap in the face to the U.S.A., and a giant victory for its opponents. If they rule against our Country on Birthright Citizenship, which they probably will, it will be even worse, if that’s possible. It will cost America massive amounts of money but, more importantly, it will cost America its DIGNITY! No, the Radical Left Democrats don’t need to “Pack the Court,” it’s already Packed! President DONALD J. TRUMP
+
+---
+
+## Message 19211
+
+**Date:** 2026-04-22T17:02:41+00:00
+
+To the Iranian leaders, who will soon be in negotiations with my representatives: I would greatly appreciate the release of these women. I am sure that they will respect the fact that you did so. Please do them no harm! Would be a great start to our negotiations!!!…
+
+---
+
+## Message 19212
+
+**Date:** 2026-04-22T17:36:01+00:00
+
+A RIGGED ELECTION TOOK PLACE LAST NIGHT IN THE GREAT COMMONWEALTH OF VIRGINIA! All day long Republicans were winning, the Spirit was unbelievable, until the very end when, of course, there was a massive “Mail In Ballot Drop!” Where have I heard that before — And the Democrats eked out another Crooked Victory! Six to five goes to ten to one, and yet the Presidential Election in November was very close to a 50-50 split. In addition to everything else, the language on the Referendum was purposefully unintelligible and deceptive. As everyone knows, I am an extraordinarily brilliant person, and even I had no idea what the hell they were talking about in the Referendum, and neither do they! Let’s see if the Courts will fix this travesty of “Justice.” President DONALD J. TRUMP
+
+---
+
+## Message 19213
+
+**Date:** 2026-04-22T17:43:11+00:00
+
+Senate Majority Leader John Thune, and Senator Lindsey Graham, have taken a critical first step to passing another Reconciliation Bill to fund our Great Border Patrol and ICE Agents. The Radical Left Democrats, and their so-called “Leader,” Cryin’ Chuck Schumer, one of the most incompetent Senators in American History, will try to offer “Amendments” during this process to divide Republicans. Republicans must stick together and UNIFY to get this done, and to keep America safe — something which the Democrats don’t care about. Thank you for your attention to this matter. MAKE AMERICA GREAT AGAIN! President DONALD J. TRUMP
 
 ---
