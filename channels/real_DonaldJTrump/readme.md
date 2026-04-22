@@ -1,13 +1,5 @@
 # Channel real_DonaldJTrump
 
-## Message 19194
-
-**Date:** 2026-04-20T17:37:14+00:00
-
-The DEAL that we are making with Iran will be FAR BETTER than the JCPOA, commonly referred to as “The Iran Nuclear Deal,” penned by Barack Hussein Obama and Sleepy Joe Biden, one of the Worst Deals ever made having to do with the Security of our Country. It was a guaranteed Road to a Nuclear Weapon, which will not, and cannot, happen with the Deal we’re working on. They actually gave $1.7 Billion Dollars in “GREEN” Cash, loaded into a Boeing 757, and flown to Iran for Iranian leadership to spend anyway they saw fit. He emptied out all of the Cash from Banks in D.C., Virginia, and Maryland. Those Bankers said they’ve never seen anything like it before. In addition, Hundreds of Billions of Dollars was paid to Iran. If I did not terminate that “Deal,” Nuclear Weapons would have been used on Israel, and all over the Middle East, including our cherished U.S. Military Bases. The Fake News, like Lightweight Washington Post “Journalist” David Ignatius, loves to talk about the JCPOA, knowing that it was DANGEROUS, and a Complete Embarrassment to our Country. If a Deal happens under “TRUMP,” it will guarantee Peace, Security, and Safety, not only for Israel and the Middle East, but for Europe, America, and everywhere else. It will be something that the entire World will be proud of, instead of the years of Embarrassment and Humiliation that we have been forced to suffer due to incompetent and cowardly leadership! President DONALD J. TRUMP
-
----
-
 ## Message 19195
 
 **Date:** 2026-04-20T17:43:16+00:00
@@ -145,5 +137,13 @@ A RIGGED ELECTION TOOK PLACE LAST NIGHT IN THE GREAT COMMONWEALTH OF VIRGINIA! A
 **Date:** 2026-04-22T17:43:11+00:00
 
 Senate Majority Leader John Thune, and Senator Lindsey Graham, have taken a critical first step to passing another Reconciliation Bill to fund our Great Border Patrol and ICE Agents. The Radical Left Democrats, and their so-called “Leader,” Cryin’ Chuck Schumer, one of the most incompetent Senators in American History, will try to offer “Amendments” during this process to divide Republicans. Republicans must stick together and UNIFY to get this done, and to keep America safe — something which the Democrats don’t care about. Thank you for your attention to this matter. MAKE AMERICA GREAT AGAIN! President DONALD J. TRUMP
+
+---
+
+## Message 19214
+
+**Date:** 2026-04-22T19:09:27+00:00
+
+“YOU CAN’T COMPROMISE ON SANITY AND COMMON SENSE!”
 
 ---
