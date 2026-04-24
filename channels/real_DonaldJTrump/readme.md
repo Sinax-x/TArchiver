@@ -1,37 +1,5 @@
 # Channel real_DonaldJTrump
 
-## Message 19195
-
-**Date:** 2026-04-20T17:43:16+00:00
-
-The Democrats are doing everything possible to hurt the very strong position we are in with respect to Iran. Despite World War I lasting 4 years, 3 months, and 14 days, World War II lasting 6 years and 1 day, the Korean War lasting 3 years, 1 month, and 2 days, the Vietnam War lasting 19 years, 5 months, and 29 days, and Iraq lasting 8 years, 8 months, and 28 days, they like to say that I promised 6 weeks to defeat Iran, and actually, from the Military standpoint, it was far faster than that, but I’m not going to let them rush the United States into making a Deal that is not as good as it could have been. I read the Fake News saying that I am under “pressure” to make a Deal. THIS IS NOT TRUE! I am under no pressure whatsoever, although, it will all happen, relatively quickly! Time is not my adversary, the only thing that matters is that we finally, after 47 years, straighten out the MESS that other Presidents let happen because they didn’t have the Courage or Foresight to do what had to be done with respect to Iran. We’re in it, and it will be done RIGHT, and we won’t let the Weak and Pathetic Democrats, TRAITORS ALL, who for years have been talking about the Dangers of Iran, and that something has to be done, but now, since I’m the one doing it, belittle the accomplishments of our Military and the Trump Administration. This is being perfectly executed, on the scale of Venezuela, just a bigger, more complex operation. The result will be the same. In my First Term, I built the Greatest Military our Country has ever seen, including adding Space Force. In my Second Term, I am properly and judiciously using our Military to solve problems left to us by others of far less understanding or competence. MAKE AMERICA GREAT AGAIN! President DONALD J. TRUMP
-
----
-
-## Message 19196
-
-**Date:** 2026-04-20T18:12:48+00:00
-
-I’m winning a War, BY A LOT, things are going very well, our Military has been amazing and, if you read the Fake News, like The Failing New York Times, the absolutely horrendous and disgusting Wall Street Journal, or the now almost defunct, fortunately, Washington Post, you would actually think we are losing the War. The enemy is confused, because they get these same Media “reports,” and yet they realize their Navy has been completely wiped out, their Air Force has gone onto darker runways, they have no Anti Missile or Anti Airplane Equipment, their former leaders are mostly gone (This has been, in addition to everything else, Regime Change!), and perhaps, most important of all, THE BLOCKADE, which we will not take off until there is a “DEAL,” is absolutely destroying Iran. They are losing $500 Million Dollars a day, an unsustainable number, even in the short run. The Anti-America Fake News Media is rooting for Iran to win, but it’s not going to happen, because I’m in charge! Just like these unpatriotic people used every ounce of their limited strength to fight me in the Election, they continue to do so with Iran. The result will be the same — It already is! President DONALD J. TRUMP
-
----
-
-## Message 19197
-
-**Date:** 2026-04-20T18:29:50+00:00
-
-The Iranian leadership has forced hundreds of Ships toward the United States, mostly Texas, Louisiana, and Alaska, to get their Oil — Thank you very much! President DONALD J. TRUMP
-
----
-
-## Message 19198
-
-**Date:** 2026-04-20T19:02:55+00:00
-
-![photo](media/19198_0.jpg)
-
----
-
 ## Message 19201
 
 **Date:** 2026-04-21T03:05:25+00:00
@@ -145,5 +113,53 @@ Senate Majority Leader John Thune, and Senator Lindsey Graham, have taken a crit
 **Date:** 2026-04-22T19:09:27+00:00
 
 “YOU CAN’T COMPROMISE ON SANITY AND COMMON SENSE!”
+
+---
+
+## Message 19215
+
+**Date:** 2026-04-23T14:12:52+00:00
+
+Iran is having a very hard time figuring out who their leader is! They just don’t know! The infighting is between the “Hardliners,” who have been losing BADLY on the battlefield, and the “Moderates,” who are not very moderate at all (but gaining respect!), is CRAZY! We have total control over the Strait of Hormuz. No ship can enter or leave without the approval of the United States Navy. It is “Sealed up Tight,” until such time as Iran is able to make a DEAL!!! Thank you for your attention to this matter. President DONALD J. TRUMP
+
+---
+
+## Message 19216
+
+**Date:** 2026-04-23T14:15:01+00:00
+
+I have ordered the United States Navy to shoot and kill any boat, small boats though they may be (Their naval ships are ALL, 159 of them, at the bottom of the sea!), that is putting mines in the waters of the Strait of Hormuz. There is to be no hesitation. Additionally, our mine “sweepers” are clearing the Strait right now. I am hereby ordering that activity to continue, but at a tripled up level! Thank you for your attention to this matter. President DONALD J. TRUMP
+
+---
+
+## Message 19217
+
+**Date:** 2026-04-23T15:43:24+00:00
+
+Wow! Cryin’ Chuck Schumer just said, for the whole World to hear, that “NOBODY RESPECTS BORDER PATROL OR ICE.” That is one of the most egregious, incorrect, unpatriotic, and dangerous statements I have EVER heard from a “professional” politician. HE MUST IMMEDIATELY APOLOGIZE TO THESE GREAT PATRIOTS, AND I MEAN NOW! President DONALD J. TRUMP
+
+---
+
+## Message 19218
+
+**Date:** 2026-04-23T18:23:00+00:00
+
+For those people, fewer in number now than ever before, that are reading The Failing New York Times, or watching Fake News CNN, that think that I am “anxious” to end the War (if you would even call it that!) with Iran, please be advised that I am possibly the least pressured person ever to be in this position. I have all the time in the World, but Iran doesn’t — The clock is ticking! The reason some of the Media is doing so poorly with Subscribers and Viewers is because they no longer have credibility. Iran’s Navy is lying at the bottom of the Sea, their Air Force is demolished, their Anti Aircraft and Radar Weaponry is gone, their leaders are no longer with us, the Blockade is airtight and strong and, from there, it only gets worse — Time is not on their side! A Deal will only be made when it’s appropriate and good for the United States of America, our Allies and, in fact, the rest of the World. President DONALD J. TRUMP
+
+---
+
+## Message 19219
+
+**Date:** 2026-04-23T22:23:34+00:00
+
+In December, I signed a very important Executive Order calling for Research and Innovation for Hemp-derived CBD — Something that has made a HUGE difference for so many people. In fact, ONE in FIVE adults used it in the past year, and many say it improved their chronic pain enormously. Our wonderful Dr. Mehmet Oz moved fast to follow the directive in the Executive Order, and launched a model for some Seniors earlier this month. But more must be done! I am calling on Congress to update the Law to ensure that Americans can continue to access the full-spectrum CBD products they have come to rely on, and that help them, while preserving Congress's intent to restrict the sale of products that pose Health risks. We must get this done RIGHT and FAST, especially for those who saw that CBD helps them. Plus, I am told it will also help our GREAT FARMERS, who we love, and will always be there for. Please get it done, and SOON. Thank you for your attention to this matter! President DONALD J. TRUMP
+
+---
+
+## Message 19220
+
+**Date:** 2026-04-24T05:17:51+00:00
+
+The Southern Poverty Law Center, one of the greatest political scams in American History, has been charged with FRAUD. This is another Democrat Hoax, along with Act Blue, and many others. If it is true, the 2020 Presidential Election should be permanently wiped from the books and be of no further force or effect! Thank you for your attention to this matter. President DJT
 
 ---
